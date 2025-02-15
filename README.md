@@ -1,4 +1,3 @@
 ![](https://komarev.com/ghpvc/?username=8moutains)
 
-
-![](https://github.com/user-attachments/assets/f190ff9a-6d60-4c99-82db-3982f17526e1)
+![](https://github.com/user-attachments/assets/fd359a0f-98c1-41f6-b1cc-1842c7311f4a)
